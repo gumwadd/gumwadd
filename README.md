@@ -1,3 +1,2 @@
-hlleeo !! im not doing anything more to this thaaan the spotify thing so  ,,yah
+![494933270-bfcc51d0-d8a9-4f0d-b04e-1463f7173c6d](https://github.com/user-attachments/assets/56141365-d448-4421-a6f7-c6e813120ec6)![Untitled548_20250930201331](https://github.com/user-attachments/assets/73b96676-0288-4956-9587-7568fc1d8194)<img width="309" height="133" alt="494933969-bbe16243-4183-4d89-bbde-6c8cfa075faa" src="https://github.com/user-attachments/assets/42a6b094-d58e-4ab8-b622-fa87fe377ba9" /> ╰୧  he  . neos  :  fictkin .. dbls dni ! : i love my boyfie ! ♡ ͜ ◞
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
