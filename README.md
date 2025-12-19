@@ -2,7 +2,7 @@
 
       
 
-　　   　 　　  　　 　　　 　     ╰୧  he  . neos  :  fictkin .. dbls dniuid ! : i love my [boyfie](https://github.com/Thecrowsarecawing) ! ♡ ͜ ◞
+　　   　 　　  　　 　　　 　     ╰୧  he  . neos  :  fictkin .. dbls dniuid ! : i love my [boyfie](https://github.com/Glasscoffinz) ! ♡ ͜ ◞
 
   　　   　 　　  　　 　　　　  ╰╭─────────────────────────────────────────╮
   
